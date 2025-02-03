@@ -38,7 +38,6 @@ Please note that the use of scripts may be against Roblox's terms of service. Us
 
 Join our Discord server to connect with other Bee Swarm Simulator enthusiasts, share your experiences, and stay up-to-date with the latest script updates!
 
-[Insert Discord invite link here]
 
 ---
 
